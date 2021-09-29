@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Colombiafreelance
 - 👀 I’m interested in offer Jobs remote for the community 
 - 🌱 I’m currently working as Recruiter Freelance 
-- 💞️ I’m looking to best Talent Pool por my clients
+- 💞️ I’m looking to best Talent Pool for my clients
 - 📫 How to reach me contacto@selecciónfreelance.com
 
 <!---
